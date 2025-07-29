@@ -47,7 +47,7 @@ If anything in here helps you — or if it changes your life —
 **shoot your Buh-Ro a message**: 
 
 - 📧 Email `davidsbrainapk@pm.me`
-- 📱 Instagram & TikTok [@davidsos2.0](https://www.instagram.com/davidsos2.0/)
+- 📱 Instagram [@davidsos2.0](https://www.instagram.com/davidsos2.0/)
 - 📱 TikTok [@davidsos2.0](https://www.tiktok..com/davidsos2.0/)
 - 🎥 **YouTube** [@davidsbrainapk](https://youtube.com/@davidsbrainapk?si=xk5eZvuNvlFcJaOJ)
 - ☕ [Buy me a coffee](https://buymeacoffee.com/davidsbrainapk)
